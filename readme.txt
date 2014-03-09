@@ -1,0 +1,1 @@
+es el primer commit desde la libertad que consegui.
